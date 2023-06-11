@@ -1,1 +1,0 @@
-# Kodluyoruzd ödev
